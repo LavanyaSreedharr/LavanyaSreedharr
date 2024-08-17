@@ -18,7 +18,7 @@
 
 📫 How to reach me:
 - **Email:** lavanyasreedhar46@gmail.com
-- **LinkedIn:** [S Lavanya](https://www.linkedin.com/in/s-lavanya11/)
+- **LinkedIn:** [Lavanya Sreedhar](https://www.linkedin.com/in/sreedhar-lavanya)
 - **Portfolio:** [lavanyasreedharr.github.io](https://lavanyasreedharr.github.io/)
 - **GitHub:** [lavanyaSreedharr](https://github.com/lavanyaSreedharr)
 - **Phone:** (+44) 7946329672
